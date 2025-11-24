@@ -11,3 +11,5 @@ more updates coming soon untill i forget abt it
 </br>
 
 only works with windows 
+</br>
+be free from the irritations of iready with this app that takes a screenshot and asks gemini to do it for you or whatever else ig
